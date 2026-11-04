@@ -218,4 +218,4 @@ Half-Life is available for free download, providing the full version with all fe
 Don’t miss your chance to experience one of the greatest shooters of all time. **Download Half-Life now and dive into a legendary gaming adventure!**
 
 ---
-**Last updated:** 2026-11-04 05:39:47 UTC
+**Last updated:** 2026-11-04 14:04:49 UTC
